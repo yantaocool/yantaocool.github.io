@@ -1,0 +1,1 @@
+# yantaocool.github.io
